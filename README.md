@@ -5,7 +5,7 @@
 - 👯 Je collabore sur (HomeCraft) [homecraft.fr]
 - 🤔 J'aide avec mes compétences
 - 💬 Posez-moi quelques questions
-- 📫 Comment me joindre: mailto:contactpro.feoxy@gmail.com
+- 📫 Comment me joindre: contactpro.feoxy@gmail.com
 - 😄 Pronoms: Feoxy, FoxSpace
 - ⚡ Fait amusant: je suis français!
 
